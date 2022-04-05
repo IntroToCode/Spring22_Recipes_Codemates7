@@ -3,6 +3,7 @@ French Toast
 ## Servings: 4 servings
 
 ## Time to prepare: 
+30 minutes
 
 ## Ingredients:
 -1 teaspoon ground cinnamon
