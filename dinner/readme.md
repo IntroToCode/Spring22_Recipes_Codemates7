@@ -1,6 +1,6 @@
 Carnitas
 
-## Servings: 
+## Servings: 10 servings
 
 ## Time to prepare: 
 
