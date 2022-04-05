@@ -2,6 +2,8 @@ French Toast
 
 ## Servings: 
 
+Four servings
+]
 ## Time to prepare: 
 
 ## Ingredients:
