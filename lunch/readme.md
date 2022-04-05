@@ -5,6 +5,7 @@ Italian Sub
 
 ## Time to prepare: 
 15 minutes
+
 ## Ingredients:
 -1/2 large onion, thinly sliced
 

@@ -1,4 +1,4 @@
-# Replace with recipe name
+French Toast
 
 ## Servings: 
 
@@ -10,10 +10,10 @@
 
 ## Steps for preparation:
 
+## Equipment needed:
 
+## Steps for preparation:
 
 ### Notes:
-
-
 
 ### Codemates #
