@@ -1,7 +1,7 @@
 French Toast
 
-## Servings: 4 servings
-
+## Servings: 
+4 servings
 ## Time to prepare: 
 30 minutes
 
