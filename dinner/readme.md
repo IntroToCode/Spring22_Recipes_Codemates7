@@ -3,7 +3,7 @@ Carnitas
 ## Servings: 10 servings
 
 ## Time to prepare: 
-
+Seven hours
 ## Ingredients:
 -2 1/2 pounds pork shoulder (also known as ‘pork butt’)
 -1 tablespoon lime juice
