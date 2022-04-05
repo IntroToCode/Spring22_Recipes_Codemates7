@@ -1,6 +1,7 @@
 Italian Sub
 
-## Servings: 4 servings
+## Servings: 
+4 servings
 
 ## Time to prepare: 
 15 minutes
