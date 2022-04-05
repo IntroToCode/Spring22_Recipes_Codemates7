@@ -34,7 +34,9 @@
 -1 1/2 teaspoons dried oregano
 
 ## Equipment needed:
-
+Plate
+Knife
+Napkins
 
 ## Steps for preparation:
 
