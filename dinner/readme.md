@@ -17,7 +17,8 @@ Carnitas
 -1 cup broth (chicken, beef or vegetable) *for Instant Pot cooking method only*
 
 ## Equipment needed:
-
+Slow Cooker
+Wooden Spoon
 
 ## Steps for preparation:
 
