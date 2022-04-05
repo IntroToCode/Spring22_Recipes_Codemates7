@@ -24,7 +24,7 @@ French Toast
 -1/2 cup maple syrup, warmed
 
 ## Equipment needed:
-
+Bowl, Skillet, Whisk, Plate, Spoon
 
 ## Steps for preparation:
 
