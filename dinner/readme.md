@@ -12,7 +12,13 @@ Carnitas
 
 ## Steps for preparation:
 
+Instapot Instructions: 
 
+1. Cut the pork shoulder into large 4-inch chunks. Place in the Instant Pot. 
+2. Add the lime juice, salt, ground cumin, chili powder, garlic powder, dried oregano, onion powder, black pepper and 1 cup of broth. Mix thoroughly to coat the meat with all the seasonings. 
+3. Lock the lid and set the steam release vent to the "sealing" position. Press the "manual" button and set the timer on high pressure for 40 minutes. 
+4. When the 40 minutes are up, let the pressure naturally release for 15 minutes. Then manually release the remaining pressure by moving the steam release vent to the "venting" position. 
+5. Open the lid and shred the meat with two forks. Mix in freshly chopped cilantro if desired and serve in tacos, gorditas, tostadas, burrito bowls and salads.
 
 ### Notes:
 
