@@ -13,9 +13,6 @@ Four servings
 
 ## Steps for preparation:
 
-## Equipment needed:
-
-## Steps for preparation:
 
 ### Notes:
 
