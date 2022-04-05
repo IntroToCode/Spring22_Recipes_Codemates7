@@ -10,6 +10,9 @@ Four servings
 ## Ingredients:
 
 ## Equipment needed:
+Spoon
+Pot 
+Pan
 
 ## Steps for preparation:
 
