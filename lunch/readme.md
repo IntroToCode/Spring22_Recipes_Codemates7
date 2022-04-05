@@ -35,7 +35,8 @@ Italian Sub
 
 
 ## Equipment needed:
-
+Plate
+Knife
 
 ## Steps for preparation:
 
